@@ -1,0 +1,1 @@
+La mañana amaneció tranquila, con una luz suave entrando por la ventana. Todo parecía avanzar sin prisa, como si el tiempo se hubiera puesto de acuerdo para dar un respiro. En esos momentos, incluso los detalles más pequeños una taza de café caliente, el sonido lejano de la calle— se sienten importantes y llenos de sentido.
